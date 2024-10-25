@@ -1,0 +1,1 @@
+# Esercitazione_verifica_ottobre
